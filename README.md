@@ -1,7 +1,7 @@
 ## Olá, Me chamo Wellington-saldanha, Seja Bem vindo ao meu Perfil!<br><br>
 
 
-- 👾 Cursando Análise e Desenvolvimento de sistema
+- 👾 Cursando ANÁLISE E DESENVOLVIMENTO DE SISTEMA
 - 🔥 _Amo desafios!_
 
 
